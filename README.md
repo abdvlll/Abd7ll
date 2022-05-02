@@ -2,5 +2,7 @@
 - 👀 I’m interested in Coding & currently learning
 - 📫 How to reach me:
 
-Discord: Abdull#9713 Gmail: AbdvllFN@gmail.com
-Pornhub account: Johnny Sins
+🤖 Discord: Abdull#4634
+📧 Mail - AbdvllFN@gmail.com
+📩 Outlook - Abd7ll@outlook.com
+
